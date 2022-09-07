@@ -22,7 +22,6 @@ SQL
 Business Analysis
 
 Примеры кода:
--
 
 Опыт работы: 
 Business Analyst: авг. 2019 г. - янв. 2021 г. · 1 г. 6 мес.

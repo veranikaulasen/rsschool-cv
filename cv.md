@@ -2,4 +2,4 @@
 
 ## Contacts
 
-### Veranika Ulasen
+### Veranika Ulasen 1992
